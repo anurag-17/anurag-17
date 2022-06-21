@@ -3,5 +3,5 @@
 - 🌱 I’m currently...
 - 💞️ I’m looking to collaborate on....
 - 📫 How to reach me email:anurag.pandey17@gmail.com
-- Hire Me on [UpWork](https://www.upwork.com/freelancers/~011ae84939c9dab54c/)
-- Hire Me on [Freelancer](https://www.freelancer.com/u/anurag17)
+- 👋 Hire Me on [UpWork](https://www.upwork.com/freelancers/~011ae84939c9dab54c/)
+- 👋 Hire Me on [Freelancer](https://www.freelancer.com/u/anurag17)
